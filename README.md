@@ -1,3 +1,3 @@
-*https://lerksolutions.online/*
-*https://discord.gg/f4zY62TgjB*
-OPSEC
+[ LERKDMA OT FUCK LEGIT](https://lerksolutions.online/)  
+[ Discord](https://discord.gg/f4zY62TgjB)  
+**OPSEC**
